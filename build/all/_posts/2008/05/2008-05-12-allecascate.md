@@ -1,0 +1,9 @@
+---
+layout: post
+title: >
+    Alle Cascate
+tags: [speciale,]
+date: 2008-05-12 15:20:00
+author: pietro
+---
+Vola, appena puoi via vola,<br/>salta, cieco e sordo danza,<br/>credi, duro e solare, senza<br/>temer davvero l'acqua sola,<br/>svuota svuota la faretra,<br/>sulla cascata di dura pietra,<br/>svuota svuota il caricatore,<br/>su chi provar non può dolore.<br/><br/>Scegli, grido a te che scendi<br/>le tristi scalinate di marmo,<br/>quindi vedo in te mentre dormo,<br/>e so esser io quando oro rendi<br/>ciò che distruggi con l'azzurra<br/>massa di cristallo fuso argenteo,<br/>quando su scoglio plumbeo<br/>spezzi chi restare in piedi spera.<br/><br/>Senza peso fluttua il sogno,<br/>appeso per la spenta ragnatela<br/>che lo sguardo immoto congela,<br/>bloccato ad un soffio dal ragno<br/>delle fiabe narrate ormai lontane,<br/>dei fiori e desideri appassiti,<br/>in gabbia negli incubi smarriti,<br/>sotto la mole di ombre insane.<br/><br/>Esita la goccia prima di entrare<br/>nel ciclo della vita dei molti fiori,<br/>colta dal turbine vi si getta fuori,<br/>e torna ancora nel vento a cadere,<br/>trasportata chissà dove in luoghi<br/>al di là del tempo, senza sole,<br/>dove tante immobili gocce di sale<br/>sperano fuggire ai mille roghi.<br/><br/>Cento fuochi per ogni sbaglio,<br/>compiuti nel limitato tempo<br/>che trascorre in un breve lampo,<br/>come si può devastare un maglio<br/>pare una vita tanto fertile, un'anima<br/>tanto fragile. La pace che ricerca<br/>nelle vite altrui non è altro che arca<br/>di fuga dalla guerra ch'in ei si mima.<br/><br/>Così a poca distanza sommerso<br/>sono dal vapore d'arcobaleno<br/>riflesso nei potenti flutti, e meno<br/>son contento più lo sono e disperso<br/>ché capisco di non esser solo,<br/>so esserci qualcuno degno di scalare<br/>il muro di lacrime che ci può separare,<br/>perché per saltarlo non basta il volo.

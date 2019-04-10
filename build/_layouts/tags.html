@@ -1,0 +1,21 @@
+---
+layout: base
+---
+
+
+{% if page.title.size > 0 %}
+  <header>
+    <h1 class="page-title">{{ page.title }}</h1>
+    {% include components/message.html text=page.description hide=page.hide_description %}
+  </header>
+  <hr class="sr-only"/>
+{% endif %}
+
+{{ content }}
+
+{% assign tags = site.tags | sort %}
+{% for tag in tags %}
+
+    <h2 class="hr" style="margin:0;"> <a href="/tags/{{ tag | first | slugify }}"> {{ tag[0] }} ({{ tag | last | size }})</a></h2>
+
+{% endfor %}

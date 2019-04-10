@@ -1,0 +1,8 @@
+---
+layout: post
+title: Quando L'Ora È Già Passata
+tags: [speciale,onestar,twostars,scheggia d'essenza,]
+date: 2009-09-14 21:31:00
+author: pietro
+---
+Anche una promessa sarebbe bastata,<br/>ma l'ingordigia non va rispettata,<br/>ma i tentacoli che ti hanno ingannata<br/>non ti avrebbero mai più perdonata,<br/><br/>e ora come puoi sfuggire<br/>alla tua violenza così spietata,<br/>aspetta la notte per sederti e capire,<br/>che l'ora magica, è già passata,<br/><br/>aspettando il meglio hai sofferto<br/>ma l'avarizia del povero non è giustificata,<br/>la pianta tra le mani tue morta;<br/>non si sfugge alla vendetta sperata.<br/><br/>Come chi si infligge<br/>ogni giorno una nuova frustata,<br/>chi affronta e poi fugge<br/>nuotando sotto la propria cascata,<br/><br/>come chi si ripromette<br/>una gioia dovuta,<br/>poi si sveglia un giorno e ammette<br/>che quell'ora è già passata,<br/><br/>ma la pena è stata tanta<br/>e gli occhi umidi di fata,<br/>piangi affinché nessuno senta<br/>ti senti sola e circondata,<br/><br/>come chi ti veniva a cercare<br/>chiedendo aiuto e tu pacata,<br/>dicevi non ti so aiutare<br/>ma lo facevi, per un'altra frustata.<br/><br/>Hai aspettato la sera<br/>per farti cadere addormentata,<br/>ma senza accorgersi l'ora<br/>del tuo risveglio è già arrivata,<br/><br/>ti senti quanto ieri stanca,<br/>ma la pace è terminata,<br/>c'è qualcosa che ti manca<br/>ma ti incalza la giornata,<br/><br/>e la tua tristezza sono tre parole<br/>ma io qui a cantarle e tu disperata,<br/>sperando che cada il tuo sole,<br/>per cui tanto fosti incantata,<br/><br/>anche una promessa sarebbe bastata,<br/>ma l'ingordigia non va rispettata,<br/>ma i tentacoli che ti hanno ingannata<br/>non ti avrebbero mai più perdonata.

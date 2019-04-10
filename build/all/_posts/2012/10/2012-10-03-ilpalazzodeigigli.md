@@ -1,0 +1,9 @@
+---
+layout: post
+title: >
+    Il Palazzo Dei Gigli
+tags: []
+date: 2012-10-03 15:37:00
+author: pietro
+---
+Désespoir.<br/>Gola (asciutta)<br/>Porte (chiuse)<br/>Amore (amaro)<br/>Stonebone.<br/>Edera<br/>Perdite.<br/>Allarmi<br/>Petali - Sbirciare.<br/>Macerie - Pavimenti.<br/>Serrature.<br/>&nbsp;Eco dei passi.<br/>Acqua per terra<br/>Ladro Goffo<br/>Scrigni.<br/>Aiuole incolte<br/>Chiavi perdute<br/>Pareti.<br/><br/>Il palazzo dei gigli ha la facciata coperta.<br/>Il giardiniere era vecchio<br/>è stato scacciato,<br/>le fontane non funzionano più<br/>e le rose inselvatichiscono.<br/>Il palazzo dei gigli è coperto da un'edera sottile<br/>come un'etere in cui scivolano<br/>serpentelli di luce verde scuro.<br/>L'edera viene annaffiata ogni giorno, da un ladro goffo.<br/>Un giorno sarà grande e forte, ama dire,<br/>un giorno la potrò usare, per salire.<br/>Il palazzo dei gigli ha un custode severo<br/>e un cuore di carta.<br/><br/>Disegnerò sul tuo cuore di carta<br/>con un pennello dalle setole sottili<br/>con il viso illuminato<br/>e con le mie mani più gentili.<br/><br/>Il palazzo dei gigli è stato edificato al Nord<br/>perché il freddo lo preservi<br/>e i suoi petali taglienti<br/>congelati dal gelo,<br/>affilati dal vento<br/>si aprono al cielo ma non alla terra<br/>nel cuore la pace, ma tutto attorno<br/>la guerra.<br/><br/>La forza non esiste<br/>una dopo l'altra<br/>solo infinite concentriche<br/>maschere di debolezza.<br/>La forza è la pelle<br/>di un corpo ferito.<br/>La forza è lo sguardo<br/>di un occhio impaurito.<br/>La forza è risposta<br/>a un dolore infinito.<br/>Le mura acute sono petali<br/>e sono anch'esse di carta<br/>ne vedo la luce.<br/><br/>Ho tanta paura<br/>io non sono di luce<br/>non sono una stella<br/>sono un albero che cresce al buio<br/>grande, maestoso,<br/>ma con le radici in alto<br/>e le fronde sul lato sbagliato del cosmo.

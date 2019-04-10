@@ -1,0 +1,9 @@
+---
+layout: post
+title: >
+    Incubo Nell'Incubo
+tags: [speciale,onestar,twostars,]
+date: 2008-11-10 19:03:00
+author: pietro
+---
+Quando ti svegli la notte in preda agli incubi,<br/>apri gli occhi sudato, ma son sempre tutti lì,<br/>allora ti fermi,<br/>dici calma,<br/>rifletti un momento,<br/>ma apri gli occhi e risuona un urlo il tuo lamento;<br/>quando ti svegli la notte in preda agli incubi,<br/>apri gli occhi sudato, ma son sempre tutti lì.<br/><br/>La notte è giovane,<br/>la luna immobile,<br/>il ragazzo seduto<br/>ad un ombra abbracciato,<br/><br/>la notte è sicura,<br/>ma lui ha paura,<br/>e dietro ogni tela oscura,<br/>si cela una premura:<br/><br/>quando ti svegli la notte in preda agli incubi,<br/>apri gli occhi sudato, ma son sempre tutti lì,<br/>allora tremi,<br/>balbetti calma,<br/>già pronto a scappare,<br/>ma apri gli occhi e ti trovi circondato dal mare;<br/>quando ti svegli la notte in preda agli incubi,<br/>apri gli occhi sudato, ma son sempre tutti lì.<br/><br/>Accende opaco un lume,<br/>piagnucola conforto,<br/>se non è immaginazione,<br/>allora sei già morto:<br/><br/>il conforto è troppo corto:<br/>sei morto e poi risorto,<br/>per viver fino in fondo<br/>il terrore del profondo:<br/><br/>quando ti svegli la notte in preda agli incubi,<br/>apri gli occhi sudato, ma son sempre tutti lì,<br/>allora fuggi,<br/>urlando silenzio,<br/>in un angolo nascosto,<br/>ma apri gli occhi e non trovi sicuro nessun posto;<br/>quando ti svegli la notte in preda agli incubi,<br/>apri gli occhi sudato, ma son sempre tutti lì.<br/><br/>Quando ti svegli la notte in preda agli incubi,<br/>apri gli occhi sudato, ma son sempre tutti lì.<br/><br/>Quando ti svegli la notte in preda agli incubi,<br/>apri gli occhi sudato, ma son sempre,<br/>tutti lì.

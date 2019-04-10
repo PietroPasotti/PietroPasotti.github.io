@@ -1,0 +1,9 @@
+---
+layout: post
+title: >
+    Volto Che Mi Osserva
+tags: [speciale,]
+date: 2008-12-21 16:54:00
+author: pietro
+---
+Vedo una foto qualche parola un sorriso<br/>un volto e niente di più di un viso<br/><br/>qualche parola senza alcun senso apparente,<br/>ma solo oltre le parole esiste qualcosa di decente,<br/><br/>e cosa speri tu a chi non vedi di dire,<br/>mentre non ti accorgi che il tuo io sta per morire,<br/><br/>in preda al niente<br/>della gente.<br/><br/>Vedo un volto qualche parola inutile<br/>che cerca di descrivere il tuo io fragile,<br/><br/>ma io non sono forte come credi no,<br/>sono debole lo sai ma io non te lo dirò,<br/><br/>e come mai perché che ne puoi sapere?<br/>Non sarà che non conosci quel che credi di vedere?<br/><br/>Vedo un volto che mi guarda impotente<br/>provi a giudicare ma sei solo un prepotente,<br/><br/>non puoi dire non puoi fare stai zitto solamente,<br/>altrimenti passerai per il solito demente.<br/><br/>Vedo un volto di un povero illuso<br/>che non sa di essere in sé stesso rinchiuso,<br/><br/>tu non vedi tu non sai,<br/>non capisci nemmeno dove vai,<br/><br/>e quando il tuo volto che tanto mi osserva<br/>si schianterà contro la muraglia sua serva,<br/><br/>io sarò dietro di lei e ti guarderò gridare,<br/>quando frustrato capirai di non potere,<br/><br/>quando il tuo grido riempirà il bel cielo<br/>lasciandogli l'amaro in bocca ed un pensiero,<br/><br/>un pensiero triste di chi capisce di non sapere,<br/>di non potere e che niente lo potrà salvare,<br/><br/>dal vuoto che lo opprime<br/>e che adesso lo deprime.<br/><br/>Vedo un volto non ti conosco,<br/>e giudicarti non posso né riesco,<br/><br/>ma se me lo chiedi per favore<br/>potrò far la parte del guaritore,<br/><br/>potrò tentare col poco che ho in mano<br/>di cavare d'impiccio chi è fin troppo lontano.

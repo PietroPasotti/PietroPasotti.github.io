@@ -1,0 +1,9 @@
+---
+layout: post
+title: >
+    L'Urlo Dalla Montagna
+tags: [speciale,]
+date: 2009-12-08 16:50:00
+author: pietro
+---
+Ho estratto ogni freccia,<br/>finendo le scorte<br/>mi cerco nelle gocce<br/>che scivolano davanti a me,<br/>sulla ruvida roccia infame<br/>che mi circonda tiepida<br/>scaldata dai ricordi di un sole<br/>che ormai non brilla più.<br/><br/>Ho cauterizzato ogni lacerazione<br/>ogni ferita<br/>ogni emozione,<br/>mi dico mangiando neve<br/>la lingua congela<br/>forse perché non ha parole<br/>o perché non si può leccare il sole.<br/><br/>Ho assorbito ogni gelo<br/>l'ingresso lontano della caverna<br/>mi guarda come un occhio<br/>senza palpebre per ripararmi<br/>dalla spietata aria<br/>che mi ferisce i lineamenti,<br/>mi guardo le mani<br/>pallide, da quanto tempo<br/>non vedo del verde?<br/><br/>Ho aspettato così tanto tempo,<br/>contando le gocce<br/>per non perdermi nemmeno un istante,<br/>contando i giorni<br/>facendo mucchietti di sassi,<br/>cercando invano<br/>di star dietro alle stagioni,<br/>ma qui c'è una sola notte<br/>e un solo inverno<br/>che bacia da tempo immemore<br/>il gelo di questa pietra immobile.<br/><br/>Brancolo nel buio<br/>chiamo ormai per nome<br/>ogni singola lama di fango<br/>che vuole farmi dimenticare<br/>ogni linguaggio d'urlo,<br/>non ho pietà del vento<br/>e così mi affaccio e grido<br/>schegge di ghiaccio mi feriscono perché<br/>il vento non ha,<br/>pietà alcuna di me.<br/><br/>Ho estratto le punte<br/>giorni e giorni<br/>ad ascoltare i miei echi<br/>senza nient'altro da contare,<br/>senza termini o principi<br/>punti di riferimento,<br/>e come mai ancora<br/>sanguino?

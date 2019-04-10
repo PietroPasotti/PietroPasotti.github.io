@@ -1,0 +1,9 @@
+---
+layout: post
+title: >
+    Finestre Socchiuse
+tags: []
+date: 2017-05-15 16:29:00
+author: pietro
+---
+Un'altra musa tra le mie muse<br/>la nuova regina dalle finestre socchiuse<br/>la nuova gioia tra le mie gioie<br/>la nuova bocca in cui perdere storie<br/><br/>ridi candida e ti spegni fragile<br/>un giro di luna, un traguardo difficile<br/>ricordo quando ti presi per mano<br/>tu la prendesti e la gettasti lontano<br/><br/>lontano così che per monti o per mare<br/>le fosse molto faticoso tornare<br/>ma io cammino, nuoto, volo<br/>mi proibisco di sentirmi solo.<br/><br/>Un'altra quercia nel mio parco<br/>un'altra freccia nel mio arco<br/>a trafiggere il cuore della mia musa<br/>la regina dalla bocca socchiusa<br/><br/>regina che osserva, regina che spera<br/>regina che aspetta la luna la sera<br/>per confidarle i suoi cupi pensieri<br/>i suoi lati selvaggi, i suoi desideri<br/><br/>la luna la osserva, ma non può ascoltare<br/>può solo gettarle un riflesso dal mare<br/>regina capisce, regina perdona<br/>regina vissuto uno sguardo le dona<br/><br/>non sono certo facili, certe verità<br/>certi pensieri o certe follie a metà<br/>ti lasciano riverso, la luna di traverso<br/>a malapena vivo, irrimediabilmente perso<br/><br/>allora sediamoci, sotto questa nuvola<br/>a contemplare gli orizzonti passare<br/>a contare i cieli e i pianeti fuggenti<br/>a piantare un albero e bruciarne venti<br/><br/>allora prendiamoci per mano<br/>lanciamoci nel sole come panni stesi<br/>inspirando secondi espirando minuti<br/>felici come due -- sopravvissuti.<br/><br/>Una risata fuggente e il gioco è fatto<br/>senza alcuna leggerezza il mondo cade<br/>e si rialza, con nuove fattezze<br/>bruciando di nuovo calore e bellezze<br/><br/>un freddo sole ho nel cuore, mia amata<br/>brucia quieto e timido, ma luminoso<br/>ride con te sul nostro cammino<br/>un riso candido, pungente, maestoso.

@@ -1,0 +1,9 @@
+---
+layout: post
+title: >
+    Volteggi Nel Crepuscolo
+tags: [speciale,]
+date: 2009-01-27 17:29:00
+author: pietro
+---
+Il tuo vuoto è così reale,<br/>mai visto un niente così verisimile,<br/>mai visto niente d'uguale,<br/>e tu ti specchi in questo facsimile,<br/>della tua vita squallida e sola,<br/>lasciati perdere, non vale la pena,<br/>e fatti cadere al centro della sala,<br/>dove la luce si fa forte e piena;<br/>fatti cadere senza forti movenze,<br/>fatti travolgere, dalle loro danze.<br/><br/>Sdraiato adesso sulle dure piastrelle,<br/>non vedi che una cascata di vetro,<br/>un lampadario che riflette le stelle,<br/>dritte sulle danze, sul palco e teatro,<br/>e chi è l'attore, di questa commedia,<br/>chi è che finge, di scolorire il dipinto,<br/>inconscio ancora della propria tragedia,<br/>non riesce ancora a sentire il suo pianto;<br/>fatti cadere senza brusche movenze,<br/>fatti sopraffare, dalle nostre danze.<br/><br/>Hai freddo e lo temi ma niente puoi fare,<br/>rotei gli occhi ma sei solo spaesato,<br/>lascia perdere puoi solo guardare,<br/>e sarai te stesso, quando avrai tutto guardato,<br/>togli gli occhiali, guarda col nudo,<br/>lasciati perdere, per terra spossato,<br/>contro questo squallore non esiste uno scudo,<br/>lasciati perdere, rimarrai stupito;<br/>e quando finalmente alle danze t'unirai,<br/>pentimento t'assale, ora più che mai.<br/><br/>Colpi su colpi dei suoni e colori,<br/>tanta gente e troppa folla,<br/>sperduto nel dolore degli odori,<br/>formica annegata in una calla,<br/>in una bolla di rugiada,<br/>caduta chissà quando,<br/>lasciata immacolata,<br/>ma ti stava solo aspettando;<br/>e la tua goccia o lacrima che sia,<br/>sarà lì sempre, perché è paura mia.<br/><br/>E danza con noi,<br/>lasciati danzare,<br/>volteggia come puoi,<br/>per non dimenticare.

@@ -1,0 +1,8 @@
+---
+layout: post
+title: Ricorderò Per Te
+tags: [onestar,twostars,]
+date: 2011-04-14 22:12:00
+author: pietro
+---
+<div dir="ltr" style="text-align: left">Come<br/>la notte ci riporta<br/>le stesse queste cose<br/>le stesse lamentose<br/>ricorderò per te:<br/><br/>la porta era già chiusa<br/>le palpebre dipinte<br/>di un nero così scuro<br/>da far brillare il buio<br/>tra le tue mani tese<br/><br/>più tese della strada<br/>che ci portò lontano<br/>lontano più da me<br/>che volevo solo un bacio.<br/><br/>Non è<br/>non è in quel nome strano<br/>non è in quel nome morto<br/>che chiudo le mie sfere<br/>rivolte invece al vento<br/>che mi parlò di te<br/><br/>o forse<br/>o forse quel poggiarsi<br/>di petalo sull'acqua<br/>di goccia su un tappeto<br/>stregò dei miei fantasmi<br/>il mio vuoto a sovrappormi,<br/><br/>un vecchio in cima al mare<br/>si specchia nel suo giorno<br/>si volta e tutto un tratto<br/>s'accorge della sera,<br/><br/>scommette che il suo tempo<br/>non ha sentito i passi<br/>degli echi dei suoi muri<br/>che candidi e vetrosi<br/>si spinsero più in lì<br/><br/>scommette che il suo sole<br/>ha corso più veloce<br/>che ha visto poche ore<br/>o un dio al &nbsp;rallentatore;<br/><br/>così<br/>trascorsero quei giorni<br/>ruotando assieme al sole<br/>il mio cielo è l'equatore<br/>ricorderò di te<br/><br/>così<br/>le suole consumate<br/>le palpebre bruciate<br/>il trucco ormai scrostato<br/>il tuo sguardo corrucciato<br/>ricorderò di te<br/><br/>così<br/>le notti in mezzo ai prati<br/>in cima alle colline<br/>le corse tra le spine<br/>nei campi di papaveri<br/>che ho colto assieme a te<br/><br/>così<br/>ricorderò di te<br/>di ciò che non c'è più<br/>di quello che non c'è<br/>di quello che eri tu.<br/>

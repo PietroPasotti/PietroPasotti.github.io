@@ -1,0 +1,8 @@
+---
+layout: post
+title: Senza Fede
+tags: []
+date: 2011-01-05 19:02:00
+author: pietro
+---
+<p style="margin-bottom: 0cm"></p><span><span>Senza fede </span></span><br/><span><span>ormai la nostra carenza di distanze </span></span><br/><span><span>è diventata incolmabile </span></span><br/><span><span>ho trovato il tuo campo di grano di fianco al mio </span></span><br/><span><span>la mietitura è un'altissima torre di chicchi </span></span><br/><span><span>sono tanti che se grandinassero </span></span><br/><span><span>potrebbero colorare una foresta col loro interminabile </span></span><br/><span><span>colosso di silenzio; </span></span><br/><span><span><br/> sogno che i mostri più enormi </span></span><br/><span><span>siano quelli più silenziosi </span></span><br/><span><span>sogno che i grandi piedi di ogni bestia </span></span><br/><span><span>calino come piume sul vetro </span></span><br/><span><span>a detestare la nostra sembianza. </span></span><br/><span><span><br/> Non saremo davvero mai stanchi di vivere. </span></span><br/><span><span><br/> Veneriamo il silenzio </span></span><br/><span><span>per non essere mai senza il nostro prezioso </span></span><br/><span><span>rumore. </span></span><br/><span><span><br/> Ho leccato la corteccia d'infiniti alberi </span></span><br/><span><span>mi sono arrampicato a piedi nudi nella resina </span></span><br/><span><span>ho visto tutti e sette i laghi</span></span><br/><span><span> dalla cima di quei pini </span></span><br/><span><span>e ne sono così fiero </span></span><br/><span><span>mentre venero il tuo campo </span></span><br/><span><span>il tuo grano, il tuo fieno.</span></span><p style="margin-bottom: 0cm"></p> <br/>
