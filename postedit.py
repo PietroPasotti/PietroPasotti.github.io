@@ -426,7 +426,7 @@ def push_blog(accepted=0, cmdtest=None):
         f'cd {oridir}' # go back to original working dir
     ]
 
-    if cmdtest:
+    if cmdtest is not None:
         script = [script[cmdtest]]
 
     for line in script:
