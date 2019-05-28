@@ -1,8 +1,0 @@
----
-layout: post
-title: Simmetrie Descrittive
-tags: [scheggia d'essenza,]
-date: 2013-01-20 00:21:00
-author: pietro
----
-Aveva una decina di tic<br/>tra loro incompatibili<br/>indossava sempre vestiti<br/>di colori improponibili,<br/>si inventava i modi di dire<br/>e aveva i suoi momenti bui<br/>penso che con lei<br/>la mia vita finirei,<br/>o da novantenni sdraiati nel lettone<br/>oppure tra due giorni, saltando da un balcone;<br/>il tempo non contava<br/>e mai più valore avrà:<br/>lei mai sapeva l'ora<br/>e l'ora mai saprà;<br/><br/>la pelle un poco scura<br/>di un bel colore aveva<br/>lei non ebbe mai&nbsp;paura<br/>perché lei non esisteva.<br/><br/>*<br/><br/>La porta del castello si chiude<br/>sono solo col tramonto ormai<br/>appoggio la schiena sulle mura<br/>posso quasi sentirne i brividi<br/>queste pietre sono silenziose<br/>ma tremano e mi parlano<br/>dicendo cose che non so capire<br/>ma il cui tono è sufficiente<br/>e mi fa rabbrividire,<br/>guarda tramonto<br/>guarda questo cammino<br/>mi si para davanti<br/>con insolenza<br/>il mio sonnambulismo emotivo<br/>questa volta non mi salverà<br/>certi sentieri vanno guardati<br/>e percorsi alla luce del giorno<br/>certi sentieri hanno svolte nascoste<br/>rettilinei sferici che si perdono nei boschi<br/>perché il sole che tramonta<br/>sarà sempre più veloce di me,<br/>ma lasciare questo muro è una sensazione scomoda<br/>non voglio essere solo<br/>ciascuna di queste pietre<br/>ha un po' del mio calore<br/>con la mia paura ho cementato tutto questo<br/>ma questo sentiero vuole la luce della luna<br/>ad ogni tramonto dovrò rinunciare<br/>ad ogni tramonto che busserà al volto<br/>di questo sentiero o di un altro tramonto.<br/><br/><i>A Ruby Sparks</i>

@@ -1,9 +1,0 @@
----
-layout: post
-title: >
-    Stanchezza
-tags: [speciale,twostars,threestars,scheggia d'essenza,onestar,]
-date: 2016-12-23 09:17:00
-author: pietro
----
-Forse dovrei decidermi a bruciare<br/>come una foglia sorpresa in caduta<br/>e arsa sul posto da un'onda d'amore<br/><br/>resta il pensiero confuso e ferito<br/>che pure viziato da cupa tristezza<br/>questo tramonto è finalmente finito.<br/><br/>Tra i tronchi lontani si annida la storia<br/>vicino passato da cui proveniamo<br/>portando nel sangue la grande memoria<br/><br/>eppure sopra queste mani accese<br/>un cieco dolore non accenna a evaporare<br/>o a mordere le labbra da cui si sono appese<br/><br/>le cose che ho voluto svaniscono in istanti<br/>rapite e messe in fuga da pensieri bui<br/>che pure inizialmente si credevano distanti<br/><br/>pensieri di solitudine sono brividi sulle mie braccia<br/>la ferocia di questa stanchezza<br/>copre di lividi la mia faccia<br/><br/>non ho forza di sottrarmi a questa ondata grigia<br/>per quanto mi sforzi verso terra<br/>la sabbia scivolosa mi respinge alla battigia<br/><br/>sogno di altri mari e porti più sicuri<br/>ma le isole son morte e con disperazione<br/>ho eretto per cullarmi un arcipelago di muri<br/><br/>con questa rosa stretta in pugno<br/>ho camminato un altro giorno<br/>sottovento e sotto un sogno<br/><br/>che quasi indispettito dall'assenza di un sorriso<br/>mi ha sollevato fino al cielo<br/>e sbattuto a terra quasi ucciso<br/><br/>non ho tanta leggerezza addosso<br/>mi trascino per i viali come un idiota morente<br/>credo d'essere distante, ma non mi son mai mosso.<br/><br/>Dentro questa tomba di solitudine e saggezza<br/>mi chiudo a decantare follia e vergogna<br/>come un vino velenoso e antico<br/>trasudante amore e ebbrezza.

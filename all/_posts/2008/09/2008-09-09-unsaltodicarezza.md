@@ -1,8 +1,0 @@
----
-layout: post
-title: Un Salto Di Carezza
-tags: [speciale,onestar,]
-date: 2008-09-09 17:54:00
-author: pietro
----
-Nel buio un salto di carezza,<br/>strozza ogni tristezza,<br/>nel buio un salto di carezza,<br/>divora ogni prodezza,<br/><br/>e se viver dobbiamo,<br/>ecco quello che abbiamo,<br/>e se viver vogliamo,<br/>ecco come cadiamo,<br/><br/>senza senso ogni mia cosa,<br/>drena linfa alla tua rosa,<br/>senza forza alla mia forza,<br/>così cade chi si sforza.<br/><br/>Nel buio un salto di carezza,<br/>piomba al cielo d'ogni altezza,<br/>nel buio un salto di carezza,<br/>rende vita a chi la mozza,<br/><br/>e se volessi volere,<br/>non c'è posto per potere,<br/>e se volessi gioire,<br/>non potrà mai più finire,<br/><br/>quando penso alle cose belle,<br/>che credo varie ma sono quelle,<br/>quando penso sempre più spesso,<br/>al tuo viso che mai è adesso.<br/><br/>Nel buio un salto di carezza,<br/>scruta incerto la nostra ampiezza,<br/>nel buio un salto di carezza,<br/>cede ma non spezza,<br/><br/>noi che al volo viviamo,<br/>senza ali crolliamo,<br/>noi che sempre indugeremo,<br/>dove poi mai andremo,<br/><br/>senza senso ogni battaglia,<br/>al sole d'agosto si sparpaglia,<br/>senza volontà ogni voglia,<br/>tappa l'uscio e la mia soglia.<br/><br/>Nel buio un salto di carezza,<br/>rompe gambe e poi ammazza,<br/>nel buio un salto di carezza,<br/>stronca chi si rappezza,<br/><br/>la volontà che vediamo,<br/>è solo quella che manchiamo,<br/>l'amore che provo ora<br/>è di chi ne ha sempre ancora,<br/><br/>ma forse il sussurro di un lamento,<br/>nelle prigioni del tormento,<br/>mi concede nuova quiete,<br/>poi da capo l'urlo ripete.

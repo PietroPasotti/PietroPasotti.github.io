@@ -1,9 +1,0 @@
----
-layout: post
-title: >
-    Canto Del Mondo
-tags: [speciale,onestar,]
-date: 2008-11-04 21:59:00
-author: pietro
----
-A poco dal sole nel nostro petto,<br/>qualcosa spinge e tira il nostro filo,<br/>distorce il mondo e abbellisce l'aspetto,<br/>delle virtù umane che porti in volo,<br/>che mi concedi e indosso ora ammetto,<br/>ma ch'esser mie creder non volo;<br/><br/>gloria delle altezze, falco delle profondità,<br/>bellezza della gioia, gaiezza di beltà.<br/><br/>Perché temo come non vorrei,<br/>di capir mie 'e cose che vedete indosso,<br/>ma più di così creder non potrei,<br/>non credo sia mai stato tanto mosso,<br/>il sottil mare dei pensieri miei,<br/>tanto che né nuotar né perir posso;<br/><br/>o forse sei tu che a riva mi trai,<br/>sei la mia onda e mai mia sarai.<br/><br/>Sarai tua e tutto 'l degno di canzone,<br/>tutto a te, lontano dal cosmo,<br/>tutto a te, al di là della mia emozione,<br/>tutto a te, che non meriti uno spasmo,<br/>e solo il pensiero mi porta distruzione:<br/>così è che finirà tutto il mio altruismo;<br/><br/>e spero sia tu l'eterna come la futura,<br/>nella mano in cui più non ho paura.<br/><br/>Paura del mondo e del suo bel canto,<br/>perché tu sei tu ed io sono niente,<br/>perché tu sei tu e sei un incanto,<br/>perché io son io e tu sei sorgente,<br/>io cristallizzo e tu sei tutto quanto,<br/>ma non esser triste se mi vedi piangente:<br/><br/>io devo temere ché non ho potere,<br/>tu solo gioire ché non dovresti patire.<br/><br/><span style="font-style: italic">Non ha bisogno di dediche... Si dedica da sola. A te che leggi e sai che è vero. A te che speri. A te che ora sorridi. </span>

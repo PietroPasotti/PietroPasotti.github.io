@@ -1,9 +1,0 @@
----
-layout: post
-title: >
-    La Storia Della Gabbianella
-tags: [speciale,onestar,]
-date: 2009-01-11 18:24:00
-author: pietro
----
-Nel vuoto colgo quel che salvo galleggia,<br/>mi ci aggrappo e tutto in me vaneggia.<br/><br/>Mi dibatto inutilmente, non serve nuotare,<br/>in questo lago inutile, per chi non può volare,<br/>è come una prigione, i giorni si ripetono all'infinito,<br/>tutto è sempre uguale, un nastro già sentito;<br/><br/>balzo fuori dall'acqua per forza non so quale,<br/>non posso dir se mia o del lago, non so s'è uguale,<br/>forse è il lago la cui acqua salata e muta,<br/>con uno spruzzo e sdegnata mi rifiuta;<br/><br/>come una gabbianella, dalle ali nere d'olio,<br/>che non sa come aspettar lo squalo, nel tedio;<br/>chiude gli occhi e vede il suo piccolo pulcino,<br/>sa che gli sta per dedicare, il suo ultimo respiro;<br/><br/>ecco l'acqua che si muove qualche onda ed uno schizzo,<br/>l'istinto scuote le ali ma tutto è vano ed è pensiero,<br/>invischiato nell'olio d'invidia pazzo,<br/>non può che sognare un sogno che sia vero.<br/><br/>Chiude gli occhi e sogna le stelle,<br/>ignorando i denti acuti e le mascelle.<br/><br/>Balzo fuori dall'acqua per forza non so quale,<br/>sporco di un qualche olio nero come pece,<br/>è un po' di fastidio, ma almeno non fa male,<br/>ma provando a volare, chiedo soltanto d'aver pace.<br/><br/>In quei momenti in cui non basta nuotare,<br/>vorresti tanto potere, sul dolore volare.<br/><br/>Balzo fuor d'acqua e vedo la tua mano,<br/>era tesa ma non so, l'ho presa o tutto è vano?<br/><br/><span style="font-style: italic">A chi non capisce...</span>

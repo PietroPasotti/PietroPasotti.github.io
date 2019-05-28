@@ -1,9 +1,0 @@
----
-layout: post
-title: >
-    The Broken Chapter
-tags: [english,scheggia d'essenza,the chapters,]
-date: 2015-03-04 19:45:00
-author: pietro
----
-The time shall come<br/>when the breeze decays<br/>and we mourn our losses<br/>and we solve our puzzles<br/><br/>let the silence be shed<br/>plentifully,<br/>like a holy mercy.<br/><br/>A cataclysmic reverberation<br/>a welcome sense of damnation<br/>purging our ears from the noise<br/>from the dirt<br/>that with utmost irony<br/>the fate has put me forth.<br/><br/>No sign of air<br/>- the time has come -<br/>something tells me<br/>the wind plays the leaves<br/>to chase my footprints noisily<br/><br/>what are you doing,<br/>where are you<br/>where is the light,<br/>when all the truth lies true?<br/><br/>Now only some sort of trickery<br/>hides my madness from me<br/>shows my desires their corruption<br/>begs my dreams to lay low<br/><br/>the underground has become<br/>the tip of my mountain<br/>the edge of the blade<br/>I consciently try to hide all I see<br/>behind the same unhappy shade.<br/><br/>No sign of love <br/>- the tide has gone - <br/>I've drawn my conclusions<br/>calculated my chances<br/>crossed my arms<br/>and raised defenses<br/>now I'm stranded alone<br/>in a place I don't see<br/>and my heart writes me letters<br/>in an unknown calligraphy<br/><br/>spoiled beauty,<br/>I beg your understanding<br/>mistake-like I lie here<br/>like an error unworthy of mending.<br/><br/>Past a wave of collapse <br/>comes a tidy crowd of spirits<br/>fixing what we broke<br/>in the name of worthless gods.<br/><br/>The book is open<br/>I'm staring at the pages<br/>like a storm it feels<br/>out of wind it rages<br/><br/>looking at the words I wrote<br/>unsure that it was me<br/>I fail to find the slightest trace<br/>of my only virtue - symmetry.<br/><br/>The chapter lies broken<br/>and it would be illusion<br/>not to give what is taken<br/>or think of death as a conclusion.

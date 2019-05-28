@@ -1,8 +1,0 @@
----
-layout: post
-title: Affiora Dall'Ombra
-tags: [speciale,onestar,twostars,scheggia d'essenza,]
-date: 2009-10-23 21:45:00
-author: pietro
----
-Lenta e calma scopresi<br/>la sua vetrata candida<br/>e ti porterà con sé chissà<br/>e l'aria qui s'infiamma già;<br/>per noi...<br/><br/>Arriva arriva aspettala,<br/>sull'uscio luce staglierà<br/>profili d'aggressione che<br/>somiglieranno sempre a me<br/>son io...<br/><br/>Ventaglio o rose e petali<br/>la china nera traccerà<br/>arcate ed ombre immobili<br/>che la tua bocca bacerà<br/>così...<br/><br/>Ardori nuovi a forma di<br/>chimere assurde ed orride,<br/>di mostri strani e perfidi<br/>che ruban fiato all'anima,<br/>e adesso che mi trovo qua<br/>ad afferrar la gola sua<br/>la forza invano cerca già<br/>di vincer la tristezza mia;<br/><br/>spietate luci incarnano<br/>fantasmi della notte che<br/>arrivata da un'assurdità<br/>è giunta a minacciare te,<br/><br/>e io non son contento<br/>non mi basta morte che<br/>all'improvviso gli attimi<br/>mi dicon questa vita è.<br/><br/>Ancora assorto penso io<br/>alla cornice che ora ho<br/>soltanto la mia fantasia<br/>chi sei tu forse dirmi può,<br/>di te...<br/><br/>Di nuovo in lampi lucidi<br/>cerco di distrarmi ma<br/>ferito da misteri perfidi<br/>mi sto strappando l'anima,<br/>da me...<br/><br/>E allora accolgo il seme in me<br/>dell'ira che mi può aiutar,<br/>afferro con la fantasia<br/>il suo dolce collo da baciar,<br/>ma rimpiangendo già la mia<br/>distorco anche la vita sua<br/>ed è allora in quell'istante che<br/>mi salvo perché penso a te;<br/><br/>e allora è in quell'istante che<br/>mi salvo perché penso a te.<br/><br/><span style="font-style: italic">Eh... Per questa una dedica speciale... </span>

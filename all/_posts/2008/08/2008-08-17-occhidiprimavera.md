@@ -1,8 +1,0 @@
----
-layout: post
-title: Occhi Di Primavera
-tags: []
-date: 2008-08-17 22:26:00
-author: pietro
----
-Cerca ogni stella e portala via,<br/>scegli la nostra, osserva la mia,<br/>guarda le foglie e bevine il vero,<br/>tra gli uomini non ve n'è sincero,<br/><br/>ma non per malizia o per gelosia,<br/>perché la verità non è tua o mia,<br/>perché ogni cosa che crediamo,<br/>è solo quello che da perdere abbiamo.<br/><br/>Non stasera, non stasera,<br/>ci sarà una primavera,<br/>non domani, né stasera,<br/>ma solo ieri forse v'era.<br/><br/>Primavera di ricordi e bacche,<br/>primavera e troppe foglie secche,<br/>sole e fiori che bucano la neve,<br/>appassiti presto come anime cave,<br/><br/>e quanti ebbero la possibilità,<br/>di contemplare una gran perdita,<br/>come me videro solo una scia brillante,<br/>una cometa di scintille e luce tremante,<br/><br/>e videro correre ormai inermi,<br/>strisciandovi dietro come vermi,<br/>le vere meteore e di ghiaccio stelle,<br/>che bruciano e gelano come solo quelle.<br/><br/>Non stasera, non stasera,<br/>ci sarà una primavera,<br/>non domani, né stasera,<br/>ma solo ieri forse v'era.<br/><br/>Una età per la tristezza,<br/>una sola per la contentezza,<br/>ma molte cose strane come l'inverno<br/>rendono ogni tanto la vita un inferno,<br/><br/>e chi ha gli occhi di primavera,<br/>non è un gatto che vede la sera,<br/>non è una stella che luce emana,<br/>cieco spalle al muro si dimena,<br/><br/>e impietoso di se stesso,<br/>s'acceca furioso egli stesso,<br/>appena c'è luce e la luna vede,<br/>con un tremito a fianco le siede.<br/><br/>Non stasera, non stasera,<br/>ci sarà una primavera,<br/>non domani, né stasera,<br/>ma solo ieri forse v'era.

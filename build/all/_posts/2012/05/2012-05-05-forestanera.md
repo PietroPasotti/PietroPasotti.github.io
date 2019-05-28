@@ -1,9 +1,0 @@
----
-layout: post
-title: >
-    Foresta Nera
-tags: [speciale,scheggia d'essenza,]
-date: 2012-05-05 01:03:00
-author: pietro
----
-Foresta nera<br/>foresta piena<br/>di cose impossibili da dire<br/>sentieri ciechi e strade buie<br/>con troppi tronchi caduti e troppe buche<br/>con troppi macigni e fiumi senza ponti<br/>poco spazio per muoversi<br/>per sentirsi vivi e dire<br/>qualcosa che qualcuno<br/>avrà il cuore di sentire.<br/><br/>No, i corvi sono ancora qui,<br/>no, le pozzanghere non mi riflettono<br/>no, lo stormo nero mi sovrasta<br/>come un ghigno di un gigante<br/>leggero<br/>no, mi ha colto come un pugno in fronte<br/>una sbronza triste, ma senza aver bevuto,<br/>mi ha colto nel vedere<br/>puttane travestite da puttane<br/>o gente che vende al vento<br/>ciò che di buono c'è sotto quel sorriso spento,<br/>pavoni travestiti da pavoni<br/>o gente che vende e ruba<br/>tutto ciò che manca a quei sorrisi da coglioni.<br/><br/>Foresta nera,<br/>i corvi sono ancora qui,<br/>foresta nera,<br/>il cadavere su cui banchettano<br/>è un po' anche il mio;<br/>foresta nera,<br/>ho incontrato per la strada<br/>un paio delle tue streghe<br/>rendono più amara, con dolcezza,<br/>la mia già amara fine,<br/>rendono più cupa, con chiarezza,<br/>la mia già cupa fine,<br/>foresta nera,<br/>i corvi sono ancora qui<br/>io li scambio per la notte,<br/>ma la notte rispetta le tue leggi<br/>la notte non banchetta, la notte cova,<br/>la notte non è corvo<br/>non ha lo sguardo torvo<br/>se dormo tra i tuoi rami<br/>e se è vero che mi ami<br/>risparmiami le due sorelle<br/>e lasciami dormire<br/>la mia notte senza stelle.

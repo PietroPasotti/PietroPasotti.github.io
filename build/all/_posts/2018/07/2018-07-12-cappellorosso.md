@@ -1,9 +1,0 @@
----
-layout: post
-title: >
-    Cappello Rosso
-tags: []
-date: 2018-07-12 23:32:59
-author: pietro
----
-Non l'avevo proprio in testa<br/>ma mi è ricaduto addosso<br/>vanità e delicatezza<br/>un cappello tutto rosso<br/><br/>sulla sabbia e sotto il sole<br/>richiamare l'attenzione<br/>leggere scrivere<br/>l'odore della crema<br/><br/>ti voglio in resta e piena<br/>d'occhi e orecchie<br/>e solo per me<br/><br/>ti voglio distesa<br/>ti voglio puntata<br/>ti voglio spianata<br/>come il braccio di un ballerino<br/><br/>che all'ultimo passo ritorna bambino<br/>che all'ultimo passo ritorna bambino.<br/><br/><em>A Natalia...</em>

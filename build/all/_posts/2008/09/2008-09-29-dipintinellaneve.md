@@ -1,9 +1,0 @@
----
-layout: post
-title: >
-    Dipinti Nella Neve
-tags: [speciale,onestar,twostars,]
-date: 2008-09-29 15:56:00
-author: pietro
----
-Sembra un sogno si lo sai,<br/>lo so io non sarò mai,<br/>quel che penso e quel che vedo,<br/>nei miei passi da ubriacone,<br/><br/>lento lento per la strada,<br/>il pittore si riposa,<br/>colta la sua miglior rosa,<br/>senz'animo la stringe,<br/><br/>in un attimo di posa,<br/>dopo un passo più leggero,<br/><br/>in un attimo la neve,<br/>resta immobile nel cielo,<br/>e le nuvole e le navi<br/>lascian morbide catene.<br/><br/>Resta fermo allora lui,<br/>resta sotto all'albero,<br/>tutto bianco come lei,<br/>che sorrideva in fondo al mare,<br/><br/>i momenti e le scintille,<br/>dietro al fuoco in casa sua,<br/>restan fragili le foglie,<br/>di memoria nella neve,<br/><br/>piange l'uomo piange il foglio,<br/>sulla tela macchie rosse,<br/>di un'anima perduta,<br/>che si cerca ormai spezzata,<br/><br/>nel suo sogno di bellezza<br/>tragica v'è una carezza,<br/>che ogni tanto vede e culla,<br/>nella notte la stampella.<br/><br/>Oltre al mare di colori,<br/>rivangando la memoria,<br/>ripescando in fondo al lago,<br/>ogni atomo di storia,<br/><br/>fu l'amore fu il suo sogno,<br/>ora il vecchio e il suo disegno,<br/>restan fermi sotto ai rami,<br/>del gran leccio accanto al fiume,<br/><br/>e le acque sussurrando,<br/>assieme al vento al sole,<br/>nei gran fiocchi di magia,<br/>che scintillan come sale,<br/><br/>ricordano al pittore,<br/>la sua anima e terrore,<br/><br/>sette anni di speranza,<br/>sette anni di magia,<br/>dopo tanto ogni sua foglia,<br/>appassisce e vola via.<br/><br/>E nei segni nei disegni,<br/>nelle lacrime e nei fogli,<br/>nei colori dei dipinti,<br/>non vi son più che ricordi,<br/><br/>una vita una vita,<br/>che pure il fiume ha smarrita,<br/>senza attimi da troppo,<br/>più non può veder lontano,<br/><br/>senza anima nel corpo,<br/>uno spettro ormai per mano.

@@ -1,9 +1,0 @@
----
-layout: post
-title: >
-    26 - Ritorno Alla Realtà (Mantide)
-tags: []
-date: 2012-03-21 20:41:00
-author: pietro
----
-Ti direi alcune cose che non vanno ancora dette<br/>te le direi per mano, con gli occhi e con la voce<br/>sui carboni ardenti ed un oceano di brace<br/>te le direi perché non so, perché non vedo<br/>perché non capisco?<br/>Ogni risposta è un sintomo e ogni parola è malattia<br/>la più tremenda che ci sia, la fine.<br/>Con la lentezza cieca, inarrestabile e fatale<br/>di un guarito terminale ti riporto alla realtà<br/>con due parole a metà;<br/>dove finiscono le cose ed incominciano i silenzi<br/>lì ti porterò, a fare la turista,<br/>a contemplare il nulla da una camera con vista<br/>così felici, così silenziosi, sicuramente persi<br/>perché è quello che siamo, non è vero?<br/>Queste cose che direi, queste terribili,<br/>latenti e sorridenti, inevitabili;<br/>queste cose che non vanno dette<br/>ma che dico senza dire<br/>che ti fan morire<br/>scavano per me quei vasti pozzi senza fondo<br/>attraverso me e probabilmente il mondo<br/>riducendo a un foro questa pelle tesa<br/>queste dita irascibili e queste unghie spaccate<br/>a furia di guanciate.<br/>Non posso cingere con grazia un olmo da segare<br/>non posso accarezzare un albero seccato<br/>un legno quasi marcio che non contiene niente<br/>solo foto in bianco e nero e brevi lampi di luce,<br/>così lo guardo, sperando venga giù da solo<br/>o che il nido che ha tra i rami, si salvi e prenda il volo<br/>portando altrove i suoi pulcini estranei, ignoti,<br/>assurdamente troppo in alto<br/>per me.<br/>E tutto ciò che ho in mano sono gusci vuoti,<br/>per disperazione ho divorato i miei bambini<br/>e ora senza più nessun seme da crescere<br/>una stagione in cui credere,<br/>verrà la primavera e la stagione degli amori<br/>e mentre tu cresci<br/>io morirò di fame, stringendo i miei gusci.
